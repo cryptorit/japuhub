@@ -7,4 +7,4 @@ Casa Japuanga sees itself as an Autonomous Cultural Territory, with a decentrali
 
 The community's interest in Web3 technology lies in the possibilities of developing decentralized governance that can enhance existing processes, fostering greater community engagement and aiming for sustainability within the principles of the creative economy.
 
-Our first and biggest challenge is to educate the community about Web3, and our chosen path is to hold 4 interdisciplinary events involving art, technology, and community processes within the house space, attracting artists, enthusiasts, and the community for an emotionally engaging onboarding process."
+Our first and biggest challenge is to educate the community about Web3, and our chosen path is to hold 4 interdisciplinary events involving art, technology, and community processes within the house space, attracting artists, enthusiasts, and the community for an affective engaging onboarding process."
